@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning basic accounting functions.
 - - 💞️ I’m looking to collaborate on incorporating fitness and data together.
 - 📫 How to reach me databryson@habilitat.com
-- 😄 Pronouns: "Doctor Data
+- 😄 Pronouns: "Doctor Data"
 - ⚡ Fun fact: Dubstep, fog and laser beams! 💥
 
 <!---
