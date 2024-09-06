@@ -5,7 +5,7 @@
 - 📫 How to reach me databryson@habilitat.com
 - 😄 Pronouns: "Doctor Data"
 - ⚡ Fun fact: Dubstep, fog and laser beams! 💥
-![Bryson P Certificate](https://github.com/user-attachments/assets/1ff85773-b2da-4ea5-8019-120642c955c6" alt="7" width="500")
+![Bryson P Certificate](https://github.com/user-attachments/assets/1ff85773-b2da-4ea5-8019-120642c955c6)
 
 <!---
 Bpau013/Bpau013 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
